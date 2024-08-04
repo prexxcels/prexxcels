@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @prexxcel
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning JavaScript
+- 📫 Reach me trough discord or snapchat
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I ate 3 pretzels today
